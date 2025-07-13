@@ -6,7 +6,7 @@
 
 ## Hakkımızda
 
-Beylikdüzü bölgesinde özel tanışmalar, güvenli iletişim ve kaliteli vakit geçirmek isteyenler için hizmet veriyoruz. Tüm süreçlerde gizliliğe ve karşılıklı güvene öncelik veriyoruz.
+Beylikdüzü bölgesinde etkileyici tanışmalar, güvenli iletişim ve kaliteli vakit geçirmek isteyenler için hizmet veriyoruz. Tüm süreçlerde gizliliğe ve karşılıklı güvene öncelik veriyoruz.
 
 ### Neler Sunuyoruz:
 
